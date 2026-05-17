@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Fragmentvonditch.github.io/surfshark-ml98/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/surfshark-ml98/ https://Fragmentvonditch.github.io/surfshark-ml98/) |
  |---------------------|----------------------:|
 
 
